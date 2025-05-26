@@ -13,6 +13,8 @@ You can buy the game from these trusted platforms:
 
 Freedom Fighters lets you play as a resistance fighter leading a small group to liberate your city from enemy forces. It offers intense combat and strategic squad management.
 
+[Freedom Fighters Game Download] (https://gamespent.com/freedom-fighters-game-download-for-pc/)
+
 ## How to Get the Game
 
 Purchase and download the game directly from the official platforms linked above. This ensures you get a legitimate copy with updates and support.
